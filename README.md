@@ -1,4 +1,3 @@
-![](https://64.media.tumblr.com/23add7558e114fed8a0089c2ab35df25/334939176573664f-f2/s500x750/b35ba3efd06881474bfd48f5cf01f493d8eefc45.gifv)
 
 ![](https://64.media.tumblr.com/cff9a755097d997ef5a43920663460c1/e9e5eaac84bb2c66-4f/s100x200/6bba68e074780ca40a5469f36e45f200bda12436.gifv)
 ![](https://64.media.tumblr.com/034d7e7932088fbf6ab85dbba3cbffc6/e9e5eaac84bb2c66-f1/s100x200/b847b7bed1f77aaed85330c64851f9d9b4934008.gifv)
