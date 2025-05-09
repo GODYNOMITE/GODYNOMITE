@@ -8,6 +8,7 @@
 ![](https://64.media.tumblr.com/bc4864fd4af7629a888b91d69c615b4a/caf9ed2ff3cc2420-c5/s250x400/92a2481e9f65c3e3dd2ffe7204ebbc68b5e5b74c.gifv)
 ![](https://64.media.tumblr.com/a3badaadd50f625653b3ce0f1d0c2535/bea578ccfee15413-d4/s100x200/83f8e444df2921397ec81c46d4658577aa485b9a.gifv)
 ![](https://64.media.tumblr.com/6d3d3da0050d725630a987e2765dc46a/c5263e20482eb53e-3a/s100x200/3662f15a771650b82ea3ba8541c2136fa706a3f4.gifv)
+![](https://64.media.tumblr.com/744feab12acd305bea270f6990378744/4b6c9e6bc20e955b-22/s250x400/7e3fb31395c462ed1bb9dbbc41c25d546ab1d533.gifv)
 
 ![Без названия77_20250505212052](https://github.com/user-attachments/assets/3678a53b-2167-4024-acd8-b8d461eb6c7d)
 
